@@ -17,7 +17,8 @@ Interests:
 
 
 💼 Connect with me:
+GITHUB -https://github.com/Dhruvipanchal15/Dhruvipanchal15
 
-GitHub: Your GitHub Profile
 LinkedIn:https://www.linkedin.com/in/dhruvi-panchal-9b824a289
+
 Gmail : dhruvipanchal1507@gmail.com
